@@ -12,4 +12,4 @@ Frontend Developer & Digital Marketer based in Lagos, Nigeria.
 
 ## 📩 Contact Me
 - WhatsApp: +2349126187272
-- Email: ibrahimsalihuusman56@gmail.com
+- Email: ibrahimsalihuusman091@gmail.com
